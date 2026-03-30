@@ -1,11 +1,3 @@
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
-# alica_zahia_irdi-1801624101-drp
+Nama: Alica Zahia Irdi
+
+NIM: 1801624101
